@@ -2,4 +2,4 @@
 
 [Youtube Channel](https://www.youtube.com/@Farl1and-1/videos)
 
-[About me](https.//www.guns.lol/farl1and)
+[About me](https://www.guns.lol/farl1and)
