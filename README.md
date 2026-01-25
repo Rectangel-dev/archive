@@ -1,1 +1,1 @@
-[recta](https://rectangel-dev.github.io/archive/)
+[Bedfight Archive](https://rectangel-dev.github.io/archive/)
